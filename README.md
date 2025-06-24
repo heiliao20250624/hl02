@@ -27,7 +27,7 @@
 
 点击访问：<a href="https://pi11-01.pages.dev/">51吃瓜</a>
 
-点击访问：<a href="https://dy10-03.pages.dev/">抖音走光>
+点击访问：<a href="https://dy10-03.pages.dev/">抖音走光</a>
 
 点击访问：<a href="https://pi11-01.pages.dev/">51吃瓜</a>
 
