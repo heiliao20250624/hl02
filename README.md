@@ -19,7 +19,7 @@
 
 点击访问：<a href="https://hl375.pages.dev/">黑料社区</a>
 
-点击访问：<a href="https://pi114.pages.dev/>暗网禁区<a>
+点击访问：<a href="https://pi114.pages.dev/">暗网禁区<a>
 
 点击访问：<a href="https://pi10-1.pages.dev/">91吃瓜- 黑料</a>
 
@@ -29,7 +29,7 @@
 
 点击访问：<a href="https://dy10-03.pages.dev/">抖音走光>
 
-点击访问：<a href="https://pi11-01.pages.dev/"51吃瓜</a>
+点击访问：<a href="https://pi11-01.pages.dev/">51吃瓜</a>
 
 点击访问：<a href="https://hj-1253.pages.dev/">海角社区吃瓜免费</a>
 
